@@ -1,0 +1,1 @@
+An assortment of bits and pieces that need to be in the public domain for various reasons.
